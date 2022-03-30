@@ -1,11 +1,11 @@
 
-twinkle twinkle little star
+Twinkle twinkle little star
 
-how i wonder what u r
+How I wonder what you are
 
-up above the fly so high
+Up above the world so high
 
-like a diamond in the sky
+Like a diamond in the sky
 
 
 I'm writing a poem that's bad
